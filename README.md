@@ -1,5 +1,6 @@
 # sandrine
-#growth thinking
+# growth thinking
+
  with work my skills can improve overtime
  
   embrace challenges 
